@@ -1,5 +1,6 @@
 # Assignment-2-TIS-Industrial-Visit-1-
-We visit to UTM Digital for assignment 2
+We had visited to UTM Digital for Assignment 2.
+We made a video for the details dan reflection for this visit.
 
 Technology and Information Systems-Assignment 2 (Industrial Visit to UTM DIGITAL) Group 6
 
