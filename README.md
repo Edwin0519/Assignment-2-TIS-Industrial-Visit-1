@@ -11,6 +11,7 @@ Technology and Information Systems-Assignment 2 (Industrial Visit to UTM DIGITAL
 5. Edwin Tan Yee En
 
 Reflection
+
 This industrial visit to UTM Digital was a valuable experience, offering insights into how industry practices apply technology and innovation. I learned about system development, digital infrastructure, and the importance of adaptability and teamwork in a professional setting. This visit reinforced the connection between academic knowledge and real-world applications, providing valuable lessons for my future career.
 
 For improvement in my assignment, better collaboration among teammates would enhance the overall quality of the video, ensuring that everyone contributes effectively and ideas are well-executed. Additionally, creating a more structured timetable would help prevent delays, as some tasks were overdue during this project. Lastly, improving video editing skills would enhance the final product, making it more engaging and professionally polished.
