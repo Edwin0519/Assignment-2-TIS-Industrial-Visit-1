@@ -14,6 +14,10 @@ Technology and Information Systems-Assignment 2 (Industrial Visit to UTM DIGITAL
 
 Here is the video for the industrial visit to UTM Digital:
 
+## [Click here for the video](https://youtu.be/ibmbXXh5H2E?si=HaRhpVLN8OEPkVBp)  
+
+Or watch below:
+
 [![Watch the video](https://img.youtube.com/vi/ibmbXXh5H2E/maxresdefault.jpg)](https://youtu.be/ibmbXXh5H2E?si=HaRhpVLN8OEPkVBp)
 
 
